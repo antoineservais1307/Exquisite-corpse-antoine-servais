@@ -15,3 +15,7 @@ The superhero is only alive until then by sheer luck
 Fortunately, he has a really nice ordinary power :
 He is a sleepwalker, but with a semi consciousness
 Basically, just enough to avoid unwanted collisions
+
+One night, while navigating the cityscape, Max encountered a mysterious figure who seemed to be waiting for him.
+"I've been watching you," the figure said, "and it's time you learned to control your powers fully.
+With a mix of excitement and apprehension, Max listened as the figure began to reveal secrets about his true potential.
