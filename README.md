@@ -11,3 +11,7 @@ Soaring through the moonlit skies, Max used his unique gift to help those in nee
 Which in insight was really not convenient 
 How to avoid skyscrapper when you sleep ? 
 The superhero is only alive until then by sheer luck
+
+Fortunately, he has a really nice ordinary power :
+He is a sleepwalker, but with a semi consciousness
+Basically, just enough to avoid unwanted collisions
